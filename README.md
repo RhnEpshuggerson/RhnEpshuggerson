@@ -5,7 +5,7 @@
 🌱 Growtopia player<br/>
 My Instagram account [instagram](https://www.instagram.com/rhn_epshuggerson/)
 # 💫 About Me:
-## Hi Im RhnEpshuggerson<br>🎮 I love gaming and game<br>🖥️ Currently Learning C++ Lua and Python 🐍<br>🌱 Growtopia player
+## I Learn just for fun <br>I hate math it just make my brain overload<br>I love investing and see my money grows
 
 
 ## 🌐 Socials:
